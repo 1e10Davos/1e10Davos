@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything data driven
 - 📫 How to reach me - smoke signal ☁️ or carrier pigeon 🐔 preferred
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Love finding a good rock to hoist 🪨*1.5e2
+- ⚡ Fun fact: Love finding a good rock to hoist 🪨🪨🪨
 
 <!---
 1e10Davos/1e10Davos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
